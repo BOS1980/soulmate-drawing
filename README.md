@@ -1,2 +1,19 @@
-# soulmate-drawing
-Use astrology and preferences to generate a "black and white hand-painted" soul mate portrait for you, with a brief astrological interpretation and download attached.
+https://www.soulmatedrawing.live/
+Soulmate Sketch | AI Soulmate Sketches (Astrology Portrait Generator)
+Create a personalized black‑and‑white, hand‑drawn‑style “soulmate portrait” with AI + astrology in 10–20 seconds. Mobile‑friendly and designed for instant, high‑quality results.
+Keywords: AI soulmate portrait, AI soulmate sketch, astrology portrait, black‑and‑white pencil sketch, instant generation, HD images, multi‑language.
+Try it now: Soulmate Sketch – AI Soulmate Portrait Generator
+Highlights
+AI + Astrology: Combines birth details and preferences to generate a truly personalized soulmate portrait.
+Pencil Sketch Aesthetic: Black‑and‑white, hand‑drawn look with rich shading and texture.
+Ready in 10–20 Seconds: Instant results with live progress feedback.
+Multi‑Language: EN / CN / JA / ES / FR / DE.
+Privacy‑Friendly: Data handled securely; generated content managed with care.
+How It Works
+Open the website and start your journey.
+Enter basic birth details and style preferences.
+Get your AI‑generated soulmate sketch and save/share the result.
+Who It’s For
+Explorers of AI soulmate portraits and astrology‑based sketches
+Fans of black‑and‑white, hand‑drawn portrait aesthetics (great for profiles, gifts, keepsakes)
+Creators seeking unique, personalized visuals
